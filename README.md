@@ -1,1 +1,0 @@
-# sinardy.github.io
